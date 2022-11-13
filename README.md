@@ -1,1 +1,0 @@
-é nada mais, nada menos que testes para aperfeiçoar minha programação, juntando uma das minhas paixões: MARVEL, conforme eu melhorar, vou adicionar novos personagens e suas histórias de origem no mcu e nas hqs, adicionando algumas curiosidades. Espero que gostem!
